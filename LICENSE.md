@@ -1,4 +1,4 @@
-
+stealth steal a brainrot Script is the best steal a brainrot Script, featuring teleport and auto-heal. Safe and powerful for all your needs.
 
 
 
